@@ -1,1 +1,1 @@
-# Importance-of-E-Commers-SEO
+# Importance-of-E-Commerce-SEO
